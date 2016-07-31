@@ -5,7 +5,7 @@ Quiz/Game (Batch File)
 
 ![2](http://i.imgur.com/0KvkkHQg.png)
 
-![3](http://i.imgur.com/ddeszgA.png)
+![3](http://i.imgur.com/HtfLueMg.png)
 
 ![4](http://i.imgur.com/pjY3B94g.png)
 
